@@ -1,0 +1,1 @@
+# Friend_s_Negotiation_Inspired_Optimization_Technique
